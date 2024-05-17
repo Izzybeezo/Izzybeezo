@@ -1,5 +1,5 @@
 ![]( https://media1.giphy.com/media/139eZBmH1HTyRa/giphy.gif?cid=6c09b952u1qjuri1981nxty19st5jdwcc46btt411k16uvwl&ep=v1_gifs_search&rid=giphy.gif&ct=g)
-![](https://www.icegif.com/wp-content/uploads/2022/04/icegif-458.gif)
+
  # sobre mim *lizzy*
 - 👋 Hi, I’m @Izzybeezo
 - 👀 I’m interested in play online games
